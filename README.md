@@ -1,7 +1,6 @@
 # Nichole Byrnes
 
-ncbyrnes@outlook.com
-
+nichole@ncbyrnes.net
 
 cai__@outlook.com
 
