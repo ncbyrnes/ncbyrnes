@@ -1,4 +1,4 @@
-# Nichole Byrnes
+# nichole byrnes
 
 nichole@ncbyrnes.net
 
@@ -6,4 +6,4 @@ cai__@outlook.com
 
 nichole.c.byrnes@dartmouth.edu
 
-Vermont based computer nerd
+vermont based computer nerd
