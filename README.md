@@ -7,3 +7,7 @@ cai__@outlook.com
 nichole.c.byrnes@dartmouth.edu
 
 vermont based computer nerd
+
+-------
+
+https://ncbyrnes.net/
